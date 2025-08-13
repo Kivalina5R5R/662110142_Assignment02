@@ -1,2 +1,2 @@
 Teerapat Seesombat
-https://github.com/Kivalina5R5R/work2.git
+https://github.com/Kivalina5R5R/662110142_Assignment02.git
